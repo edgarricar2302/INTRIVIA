@@ -10,3 +10,6 @@ Pengen konsum gratis, kesannya ya acaranya mirip2 OSFAK
 
 ## Kesan Pesan Cluster 6 Sejauh Ini
 Pesannya jujur tidak ada, kesannya seru-seru aja
+
+## Harapan Kuliah
+Bisa langsung paham maksud apapun terkait teknologi dalam sekali lihat
